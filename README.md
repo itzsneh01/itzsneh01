@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on MYSELF...
 - 📫 Reach me on instagram @themastermind.143
 - 😄 Pronouns: SHE/HER
-
+- ✌  I'm learning codings, data management systems, app designing etc...
+- 🤓 Focusing on myself and my passion and maintaining distance with AASHIQUI...
 <!---
 itzsneh01/itzsneh01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
